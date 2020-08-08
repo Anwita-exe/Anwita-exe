@@ -10,3 +10,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: - Come to my home for Homework
 - 😄 Pronouns: Homework
 - ⚡ Fun fact: I do not like Homework
+
+This is me skipping homework ↓↓↓↓↓↓
