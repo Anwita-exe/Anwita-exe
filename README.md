@@ -1,7 +1,5 @@
 ### Hi there 👋
 
-![me-mokey-me-hoo](https://github.com/Anwita-exe/Anwita-exe/blob/master/me-monkey-me-hoo.png)
-
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on - Homework
