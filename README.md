@@ -1,6 +1,8 @@
 ### Hi there 👋
 
-Here are some ideas to get you started:
+![me-monkey-me-hoo](https://github.com/Anwita-exe/Anwita-exe/blob/master/banner.jpg)
+
+## Profile:
 
 - 🔭 I’m currently working on - Homework
 - 🌱 I’m currently learning - Homework
